@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **MERN**
 
-- 📫 How to reach me **karthickrajabtechcse@gmail.com**
+- 📫 How to reach me **karthickrajas2911@gmail.com**
 
 - ⚡ Fun fact **Tech-savvy, sustainability enthusiast!**
 
